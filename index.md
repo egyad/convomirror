@@ -201,12 +201,9 @@ If you are in the European Economic Area (EEA), you have the right to:
 
 If you have questions or concerns about this Privacy Policy, please contact us:
 
-**Email**: privacy@convomirror.com  
-**Website**: https://convomirror.com/privacy  
-**Address**: 
+**Email**: egyadhitama@gmail.com.com  
+**Website**: https://egyad.github.io/convomirror/
 
-For data protection inquiries:
-**Data Protection Officer**: dpo@convomirror.com
 
 ---
 
